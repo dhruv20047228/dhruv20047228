@@ -1,3 +1,3 @@
-#Hi, I'm Dhruv Patel - Buildin the future with code and vision
+#Hi, I'm Dhruv Patel - Building the future with Code and Vision
 ### 📜 :  Writing Code | Research | Reading Papers/Blogs.
 
